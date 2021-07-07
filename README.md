@@ -9,3 +9,5 @@
 - 🌱 公众号 [全栈阿布](https://mp.weixin.qq.com/s/tVeKxEkvI2gdwk4vtyIL5Q)
 - 🌱 小程序 [全栈阿布]()
 - 💬 关键词 `react`, `Typescript`, `node`, `vue`, `linux`, `docker`...
+
+> 信仰：佛教
