@@ -12,4 +12,4 @@
 
 > 信仰：佛教
 
-()[https://cdn.nlark.com/yuque/0/2021/jpeg/590931/1613607033451-70b04823-58c6-40e9-ab9a-0b195acffb7b.jpeg?x-oss-process=image%2Fresize%2Cw_673]
+[](https://cdn.nlark.com/yuque/0/2021/jpeg/590931/1613607033451-70b04823-58c6-40e9-ab9a-0b195acffb7b.jpeg?x-oss-process=image%2Fresize%2Cw_673)
