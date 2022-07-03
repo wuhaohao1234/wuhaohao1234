@@ -13,7 +13,7 @@
 
 > 信仰：道教
 
-![uAis.jpg](https://s1.328888.xyz/2022/07/03/uAis.jpg)![uAis.jpg](https://s1.328888.xyz/2022/07/03/uAis.jpg)
+![uAis.jpg](https://s1.328888.xyz/2022/07/03/uAis.jpg)
 
 无为
 
