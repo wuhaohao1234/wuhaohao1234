@@ -11,12 +11,12 @@
 - 🌱 小程序 [全栈阿布]()
 - 💬 关键词 `react`, `Typescript`, `node`, `vue`, `linux`, `docker`...
 
-> 信仰：佛教
+> 信仰：道教
 
-![](https://cdn.nlark.com/yuque/0/2021/jpeg/590931/1613607033451-70b04823-58c6-40e9-ab9a-0b195acffb7b.jpeg?x-oss-process=image%2Fresize%2Cw_673)
+![uAis.jpg](https://s1.328888.xyz/2022/07/03/uAis.jpg)![uAis.jpg](https://s1.328888.xyz/2022/07/03/uAis.jpg)
 
-想办法更好的提升自己，让自己变得更有能力
+无为
 
 原因：
 
-> 这个社会有太多的人生活很辛苦，尽可能的想办法去帮人，去布施
+> 一开始信佛教，后来发现佛教并不能解决眼下的问题，后来改信道教
